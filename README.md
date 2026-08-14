@@ -167,7 +167,6 @@ Evidence-Based Answer
 
 **Krishnakanth R**
 
-Final Year B.E. Computer Science and Engineering
 
 ---
 
